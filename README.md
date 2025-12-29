@@ -39,13 +39,13 @@ This platform is not just a portfolio — it’s a **testimony in motion**, show
 
 ## 📘 My Book
 **From Visions to Call** — a life-transforming journey through divine encounters and purpose.  
-📖 Read here: [https://solomough.github.io/From-visions-to-call-/](https://solomough.github.io/From-visions-to-call-/)
+📖 Read here: [From Visions to Call](https://solomough.github.io/From-visions-to-call-/)
 
 ---
 
 ## 💫 Social Links
 - 📞 **WhatsApp:** [07076560169](https://wa.me/2347076560169)  
-- 💻 **GitHub:** [github.com/Solomough](https://github.com/Solomough)  
+- 💻 **GitHub:** [Solomough](https://github.com/Solomough)  
 - 🕊️ **Facebook:** [Share](https://www.facebook.com/share/1DonCwDZuR/)  
 - 📸 **Instagram:** [@solomough3](https://www.instagram.com/solomough3?igsh=cGJ1d3JtYzh5M3Ay)  
 - 🐦 **Twitter (X):** [@Solomough](https://x.com/Solomough?t=j9FY0lH6Bx7Ou6DyCSfMJA&s=09)
